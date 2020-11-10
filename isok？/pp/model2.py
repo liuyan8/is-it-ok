@@ -1,0 +1,1 @@
+Auto Rename TagChinese (Simplified) Language Pack for Visual Studio CodeAuto Rename TagAuto Rename TagAuto Rename TagAuto Rename TagAuto Rename Tag
